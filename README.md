@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new technologies and work on the real world applications 
 - 🌱 I’m currently learning blockchain technology and working on project
 - 📫 How to reach me jaikisan94@gmail.com
-- 😄 Pronouns: kishan
+- 😄 Pronouns: He
 - ⚡ Fun fact: ...
 
 <!---
